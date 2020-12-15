@@ -1,4 +1,4 @@
-### Hi there, my name is Camilo - aka ccuevasd ✌️
+### Hi there, my name is Camilo - ccuevasd ✌️
 
 ## I'm a developer under development and a curious mind:
 
